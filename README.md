@@ -1,0 +1,1 @@
+Esse é um podcast criado completamente por Inteligência artificial, capa, conteúdo e voz do áudio, e editado por humano através da ferramenta de edição CapCut. Se trata de um projeto proposto e ensinado pelo professor da DIO Felipe Aguiar.
